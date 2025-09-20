@@ -1,2 +1,5 @@
 # EmailClient
-Name isn't final
+
+Join IN!
+
+For join write meleshkin.am@outlook.com
